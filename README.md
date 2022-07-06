@@ -1,4 +1,4 @@
 ### Hi there 👋
 
-I am a Freelancer - find my profile at [https://www.freelancer.com/u/daemonbytes](https://www.freelancer.com/u/daemonbytes)
+I am a Freelancer - join my telegram chat [https://t.me/joinchat/JHsURhhVDwVDFGiz_ZZrDg](here) for inquires. 
 
