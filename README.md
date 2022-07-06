@@ -1,4 +1,4 @@
 ### Hi there 👋
 
-I am a Freelancer - join my telegram chat [https://t.me/joinchat/JHsURhhVDwVDFGiz_ZZrDg](here) for inquires. 
+I am a Freelancer - join my telegram chat [here](https://t.me/joinchat/JHsURhhVDwVDFGiz_ZZrDg) for inquires. 
 
